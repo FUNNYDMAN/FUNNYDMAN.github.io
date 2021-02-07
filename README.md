@@ -1,1 +1,1 @@
-# FUNNYDMAN.github.io
+# funnydman.github.io
